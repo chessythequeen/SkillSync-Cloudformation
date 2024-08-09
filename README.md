@@ -1,1 +1,1 @@
-Skill Sync 12 week projects
+SkillSync 12 week projects
